@@ -1,0 +1,1 @@
+# BecasUsac-QR_Verification
